@@ -1,0 +1,1 @@
+# Design-of-Smart-Assistive-technology-for-Alzheimers-Patients
